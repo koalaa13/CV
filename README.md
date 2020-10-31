@@ -1,2 +1,2 @@
 # CV
-My CV on English language
+My CV on English
